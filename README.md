@@ -5,7 +5,7 @@ respect for rubicure.
 
 
 ## Descriotion
-this mrbgem is presented for Loveliver.
+this mrbgem  presented for Loveliver.
 
 we are coverd with
 Love live.
